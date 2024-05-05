@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CelesteTheProtogen :3
+- 😄 Pronouns: she/her
+- 📫 How to reach me: Hit me up on my discord (colorfulceleste)
+- ⚡ Fun fact: Foxes are my favorite animal
